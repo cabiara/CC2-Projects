@@ -1,2 +1,2 @@
-# CC2-Projects
-CITCS - 1D, Cabiara, Cecilia Agatha R.
+# Cabiara Portfolio
+Cabiara, Cecilia Agatha R.
